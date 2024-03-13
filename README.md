@@ -1,1 +1,1 @@
-Santos maior do mundo
+Santos maior da Série B
